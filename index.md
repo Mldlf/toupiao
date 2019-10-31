@@ -5,3 +5,4 @@
 ![Image](http://upload.ouliu.net/i/20191031003459u0y7g.jpeg) 
 # 闲来没事投一票
 # 快乐你我大家乐
+# *[立刻去投票](http://dd4gm3.v.vote8.cn/m)* 
